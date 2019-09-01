@@ -1,2 +1,0 @@
-# Arthur
-Nada que ver.
